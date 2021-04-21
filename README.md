@@ -1,17 +1,17 @@
 # MusicPack
  This is Levi's Music Pack, added new music to game. https://levi-mindustry-mods-download.webnode.tw/levi-music-pack/
  
- Mod made by 闇よ神ぇヴぃ, 白輪こげつ, 闇しミチヨ and noeearth_dragon2.
+ Mod made by 闇よ神リヴァイ, 白輪こげつ, 闇しミチヨ and noeearth_dragon2.
 
 ## Here is our Discord id:
 
-闇よ神ぇヴぃ: Levi游戲頻道#6432
+闇よ神リヴァイ: 闇よ神リヴァイ#6432
 
 白輪こげつ: 白輪こげつ#8607
 
 闇しミチヨ: 闇しミチヨ#1492
 
-noeearth_dragon2: noeearth_dragon2#0328
+noeearth_dragon2: BRUH#0328
 
 ### SOUNDTRACK LIST :
 
